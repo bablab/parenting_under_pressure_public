@@ -75,5 +75,8 @@ Approved after English PUP 243 and Spanish PUP 9
 ---
 
 
+July 17, 2020- prize draw
+Total of 88 responses from PUP English and 23 responses from Spanish PUP = 111 responses
+Excluded 2 responses who did not leave an email- total of 109 responses for prize draw.
 
 
